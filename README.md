@@ -1,1 +1,1 @@
-zapomniałe się podpisa w mail Numer albumu: 66725 Jakub Czarnecki
+zapomniałem się podpisać w mailu Numer albumu: 66725 Jakub Czarnecki
